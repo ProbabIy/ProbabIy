@@ -1,3 +1,3 @@
 -Hi I'm Probably.
 
--How to reach me? My discord. (Probably#6969)
+-How to reach me? My discord. (Pithanos)
